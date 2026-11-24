@@ -1,4 +1,4 @@
-### ¡Hola! 👋
+###
 
 Soy Matías Llorens, estudiante de Magister en Ciencia Política mención Gobierno y Políticas Públicas. 
 
